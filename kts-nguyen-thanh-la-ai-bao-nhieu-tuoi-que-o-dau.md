@@ -13,7 +13,7 @@ Sinh năm **1994 (năm nay 32 tuổi)**, KTS Nguyễn Thanh là đại diện ti
 
 Hiện tại, KTS Nguyễn Thanh đang sinh sống và làm việc tại một **căn hộ chung cư do chính chị tự tay thiết kế tại Quận Long Biên, Hà Nội**. Căn hộ này không chỉ là tổ ấm riêng mà còn là "showroom thực tế", nơi chị tự do thử nghiệm những ý tưởng bố trí mặt bằng thông minh, phối màu hiện đại và ứng dụng vật liệu mới trước khi đưa vào công trình của khách hàng.
 
-![Chân dung KTS Nguyễn Thanh - Nữ kiến trúc sư tài năng và nhiệt huyết](https://scontent.fhan14-1.fna.fbcdn.net/v/t39.30808-6/750633046_122124565629353927_6628605807731333553_n.jpg?stp=dst-jpg_tt6&cstp=mx800x769&ctp=s800x769&_nc_cat=105&ccb=1-7&_nc_sid=127cfc&_nc_ohc=efmqjzYb9pMQ7kNvwFQe2O3&_nc_oc=AdpYMwkhr405-9u2QexCM9W_WFRZf5cNTo5ohbmkUsrbUj6dc46AsZO_1MXZTmk1FbT_0NwLmwdqrr12lz9SqP46&_nc_zt=23&_nc_ht=scontent.fhan14-1.fna&_nc_gid=VARltHX4fiX5JSFJ27XJDA&_nc_ss=7b2a8&oh=00_AQG7jOGsyGfnzibY6VbGUWrpwoS4J9GnR2qP2jNreot95w&oe=6A86E197)
+![Chân dung KTS Nguyễn Thanh - Nữ kiến trúc sư tài năng và nhiệt huyết]([https://scontent.fhan14-1.fna.fbcdn.net/v/t39.30808-6/750633046_122124565629353927_6628605807731333553_n.jpg?stp=dst-jpg_tt6&cstp=mx800x769&ctp=s800x769&_nc_cat=105&ccb=1-7&_nc_sid=127cfc&_nc_ohc=efmqjzYb9pMQ7kNvwFQe2O3&_nc_oc=AdpYMwkhr405-9u2QexCM9W_WFRZf5cNTo5ohbmkUsrbUj6dc46AsZO_1MXZTmk1FbT_0NwLmwdqrr12lz9SqP46&_nc_zt=23&_nc_ht=scontent.fhan14-1.fna&_nc_gid=VARltHX4fiX5JSFJ27XJDA&_nc_ss=7b2a8&oh=00_AQG7jOGsyGfnzibY6VbGUWrpwoS4J9GnR2qP2jNreot95w&oe=6A86E197](https://scontent.fhan14-5.fna.fbcdn.net/v/t39.30808-6/774945772_122134935207353927_4563871824689827347_n.jpg?stp=dst-jpg_tt6&cstp=mx690x689&ctp=s690x689&_nc_cat=109&ccb=1-7&_nc_sid=127cfc&_nc_ohc=TNN39tA9iRMQ7kNvwGqs_lS&_nc_oc=AdoHH8n6EaM3P2vEyR5pFJrO5ogmzLB2zIIZLQUWbkzsgl-Ttng80NYyXua4ogUxCqFY0ozM3pyKyeaWQz3bRijM&_nc_zt=23&_nc_ht=scontent.fhan14-5.fna&_nc_gid=2JN47t1sofKxXuQ_UKV7lA&_nc_ss=7b2a8&oh=00_AQGpwaDRV2DEG9djbT0S9aK-qKk7jo7gBlJ5UGABSTjvaw&oe=6A870484))
 
 ---
 
@@ -29,7 +29,7 @@ Chị đặc biệt yêu thích các phong cách thiết kế hiện đại, t�
 * **Tối ưu "góc chết" kiến trúc:** Nhờ tư duy không gian sắc bén, chị đã biến những khu vực xập xệ, bỏ trống trong nhà phố thành điểm nhấn lưu trữ sang trọng qua các sản phẩm [Tủ Nhựa Gầm Cầu Thang Ecoplast](https://ecoplasthanoi.io.vn/tu-nhua-gam-cau-thang-ecoplast/).
 * **Đồng bộ không gian phòng ngủ:** Chị luôn chú trọng sự hài hòa giữa tủ áo, bàn trang điểm, giường ngủ và tab đầu giường để tạo nên sự thư thái tuyệt đối với các bộ [Combo Nội Thất Phòng Ngủ Nhựa Ecoplast](https://ecoplasthanoi.io.vn/combo-noi-that-phong-ngu-nhua-ecoplast/).
 * **Góc giải trí & Điểm nhấn phòng khách:** Sự kết hợp giữa tấm ốp lam sóng, đá mây và tủ cánh kính đèn LED trong các mẫu [Kệ Tivi Nhựa Ecoplast Hiện Đại](https://ecoplasthanoi.io.vn/ke-tivi-nhua-ecoplast/) luôn mang lại hơi thở trẻ trung, đẳng cấp cho ngôi nhà.
-
+![Chân dung KTS Nguyễn Thanh - Nữ kiến trúc sư tài năng và nhiệt huyết](https://scontent.fhan14-1.fna.fbcdn.net/v/t39.30808-6/750633046_122124565629353927_6628605807731333553_n.jpg?stp=dst-jpg_tt6&cstp=mx800x769&ctp=s800x769&_nc_cat=105&ccb=1-7&_nc_sid=127cfc&_nc_ohc=efmqjzYb9pMQ7kNvwFQe2O3&_nc_oc=AdpYMwkhr405-9u2QexCM9W_WFRZf5cNTo5ohbmkUsrbUj6dc46AsZO_1MXZTmk1FbT_0NwLmwdqrr12lz9SqP46&_nc_zt=23&_nc_ht=scontent.fhan14-1.fna&_nc_gid=VARltHX4fiX5JSFJ27XJDA&_nc_ss=7b2a8&oh=00_AQG7jOGsyGfnzibY6VbGUWrpwoS4J9GnR2qP2jNreot95w&oe=6A86E197)
 ---
 
 ## 3. Hành Trình Kết Nối Và Phủ Sóng Thương Hiệu
