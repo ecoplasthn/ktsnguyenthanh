@@ -1,12 +1,16 @@
 # Đường Nguyễn Văn Cừ Long Biên Thuộc Phường Nào Sau Sáp Nhập 1/7/2025?
 
-Tuyển đường **Nguyễn Văn Cừ** là trục giao thông huyết mạch sầm uất bậc nhất của quận Long Biên, đóng vai trò cửa ngõ phía Đông kết nối trung tâm Hà Nội qua cầu Chương Dương. 
+Tuyến đường **Nguyễn Văn Cừ** là trục giao thông huyết mạch sầm uất bậc nhất của quận Long Biên, đóng vai trò cửa ngõ phía Đông kết nối trung tâm Hà Nội qua cầu Chương Dương. 
 
 Trước đây, đường Nguyễn Văn Cừ có địa giới tương đối phức tạp khi kéo dài và được chia thành 3 phần thuộc sự quản lý của 3 phường khác nhau: **Ngọc Lâm, Bồ Đề và Gia Thụy**. 
+
+![Bản đồ tuyến đường Nguyễn Văn Cừ trên Google Maps](https://pbs.twimg.com/media/HRDyeK1acAAvFgv?format=jpg&name=medium)
 
 Tuy nhiên, căn cứ theo thông tin tra cứu bản đồ điều chỉnh địa giới hành chính (dựa theo trang tra cứu sapnhap.bando.com.vn), sau đợt sáp nhập đơn vị hành chính chính thức áp dụng từ **1/7/2025**, toàn bộ **100% địa giới đường Nguyễn Văn Cừ chính thức thuộc về Phường Bồ Đề**. 
 
 Sự thay đổi này giúp quy hoạch địa giới trở nên đồng bộ, đơn giản hóa các thủ tục hành chính cho người dân cũng như các doanh nghiệp đang kinh doanh trên tuyến phố này.
+
+![Bản đồ vệ tinh ranh giới Phường Bồ Đề mới sau sáp nhập](https://pbs.twimg.com/media/HRDyfzfagAAMKNc?format=jpg&name=medium)
 
 ---
 
@@ -24,7 +28,7 @@ Việc hợp nhất các phần diện tích thuộc Ngọc Lâm, Gia Thụy cũ
 
 Nằm ngay sát tuyến trục Nguyễn Văn Cừ, tại địa chỉ **Ngõ 19 Kim Quan**, xưởng sản xuất và thiết kế của [Nội Thất Nhựa Ecoplast Hà Nội](https://ecoplasthn.github.io/ktsnguyenthanh/) là điểm đến quen thuộc của đông đảo khách hàng khu vực Long Biên và toàn thành phố.
 
-### Ưu Thế Vị Trí Giao Thông Thượng Lợi
+### Ưu Thế Vị Trí Giao Thông Thuận Lợi
 Nhờ nằm gần trục đường chính Nguyễn Văn Cừ vừa được đồng bộ về phường Bồ Đề, việc di chuyển từ xưởng tại ngõ 19 Kim Quan đến các công trình chung cư, nhà dân xung quanh (như Hateco Laroma, Sunshine Riverside, hay các khu đô thị tại Long Biên) diễn ra cực kỳ nhanh chóng và thuận tiện.
 
 ### Dịch Vụ & Sản Phẩm Chủ Đạo Tại Xưởng
@@ -41,7 +45,7 @@ Là con phố cửa ngõ sầm uất, đường Nguyễn Văn Cừ (Phường B�
 
 ### Mua Sắm & Giải Trí
 1. **Trung tâm thương mại & Showroom lớn:** Nguyễn Văn Cừ nổi tiếng là "tuyến phố showroom" với đầy đủ các thương hiệu ô tô lớn, siêu thị điện máy, cửa hàng công nghệ hiện đại (như CellphoneS 345 Nguyễn Văn Cừ) và chuỗi cửa hàng thời trang cao cấp.
-2. **Khu vực mua sắm ẩm thực sầm uất:** Dọc tuyến đường hội tụ đầy đủ các chi nhánh ngân hàng lớn, chuỗi cafe thương hiệu như Highlights, The Coffee House, Starbucks... thích hợp cho các buổi gặp mặt đối tác hoặc thư giãn cuối tuần.
+2. **Khu vực mua sắm ẩm thực sầm uất:** Dọc tuyến đường hội tụ đầy đủ các chi nhánh ngân hàng lớn, chuỗi cafe thương hiệu như Highlands, The Coffee House, Starbucks... thích hợp cho các buổi gặp mặt đối tác hoặc thư giãn cuối tuần.
 
 ### Đa Dạng Ẩm Thực
 * **Chuỗi nhà hàng nướng & lẩu:** Tuyến đường quy tụ hàng loạt nhà hàng lẩu nướng Hàn Quốc, Nhật Bản, buffet hải sản nổi tiếng, đáp ứng nhu cầu sum họp gia đình và bạn bè.
