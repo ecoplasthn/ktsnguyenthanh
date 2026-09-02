@@ -1,4 +1,4 @@
-# Cảm Xúc Sáng Mùng 2 Tháng 9 Trên Cầu Chương Dương & Nhật Ký Bàn Giao Combo Nội Thất Phòng Ngủ Ecoplast EC-CBPN09
+# Cảm Xúc Sáng Mùng 2 Tháng 9 Trên Cầu Chương Dương & Bàn Giao Combo Nội Thất Ecoplast Cho Anh Noo Phước Thịnh (Phúc Tân)
 
 ## 1. Bình Minh Sáng 2/9 Cùng Niềm Tự Hào Dân Tộc Trên Cầu Chương Dương
 
@@ -12,14 +12,18 @@ Tiếp nối sự thành công rực rỡ từ công trình [Tủ bếp nhựa E
 
 ---
 
-## 2. Thông Tin Chi Tiết Sản Phẩm Bàn Giao
+## 2. Thông Tin Chi Tiết Công Trình Bàn Giao
+
+* **Khách hàng:** Anh Noo Phước Thịnh.
+* **Địa điểm:** Ngõ 183 Phúc Tân, Phường Hồng Hà (thuộc địa giới hành chính Ba Đình cũ), Hà Nội.
+* **Đặc thù vị trí:** Căn nhà nằm sát bờ sông Hồng, nơi có độ ẩm không khí cao hơn bình thường vào các mùa nồm ẩm. Do đó, việc lựa chọn dòng chất liệu nhựa Ecoplast chống nước 100%, chống ẩm mốc hoàn toàn là giải pháp tối ưu hàng đầu.
 
 | Hạng mục | Thông tin chi tiết |
 | :--- | :--- |
 | **Mã combo** | EC-CBPN09 |
 | **Tên sản phẩm** | [Combo giường tủ bàn trang điểm nhựa Ecoplast cao cấp EC-CBPN09](https://ecoplasthanoi.io.vn/wp-content/uploads/2026/06/Combo-giuong-tu-ban-trang-diem-nhua-Ecoplast-cao-cap-EC-CBPN09-xam-dep-600x680.webp) |
 | **Trọn bộ bao gồm** | 01 Tủ quần áo kịch trần tích hợp kệ trang trí, 01 Giường ngủ Ecoplast cao cấp, 01 Bàn trang điểm kèm gương LED |
-| **Chất liệu chính** | Tấm nhựa Ecoplast cao cấp chĩnh hãng, chống nước, chống ẩm mốc và mối mọt tuyệt đối |
+| **Chất liệu chính** | Tấm nhựa Ecoplast cao cấp chính hãng, chống nước, chống ẩm mốc và mối mọt tuyệt đối |
 | **Tông màu thiết kế** | Tone Xám ghi hiện đại phối Đen thanh lịch, điểm xuyết ánh đèn LED ấm |
 | **Hình ảnh thực tế** | ![Combo giường tủ bàn trang điểm nhựa Ecoplast EC-CBPN09](https://ecoplasthanoi.io.vn/wp-content/uploads/2026/06/Combo-giuong-tu-ban-trang-diem-nhua-Ecoplast-cao-cap-EC-CBPN09-xam-dep-600x680.webp) |
 
@@ -27,7 +31,7 @@ Tiếp nối sự thành công rực rỡ từ công trình [Tủ bếp nhựa E
 
 ## 3. Điểm Nhấn Thiết Kế Trong Gói Combo EC-CBPN09
 
-Combo EC-CBPN09 được thiết kế dựa trên tiêu chí tối ưu hóa diện tích nhưng vẫn giữ trọn nét hiện đại, sang trọng cho không gian phòng ngủ:
+Combo EC-CBPN09 được thiết kế dựa trên tiêu chí tối ưu hóa diện tích nhưng vẫn giữ trọn nét hiện đại, sang trọng cho không gian phòng ngủ của gia đình Anh Noo Phước Thịnh:
 
 ### Hệ Tủ Quần Áo Kịch Trần Thông Minh
 * **Thiết kế kịch trần:** Tận dụng tối đa chiều cao phòng ngủ, gia tăng diện tích lưu trữ quần áo, chăn ga gối đệm mùa đông mà không lo bám bụi đầu tủ.
@@ -46,8 +50,8 @@ Combo EC-CBPN09 được thiết kế dựa trên tiêu chí tối ưu hóa di�
 
 ## 4. Niềm Vui Hoàn Thiện Trong Ngày Tết Độc Lập
 
-Được thi công và hoàn thiện công trình ngay trong buổi sáng mùng 2/9 không chỉ là một nhiệm vụ chuyên môn, mà còn là trải nghiệm tràn đầy ý nghĩa đối với toàn bộ ekip. 
+Được thi công và hoàn thiện công trình cho **Anh Noo Phước Thịnh** ngay trong buổi sáng mùng 2/9 không chỉ là một nhiệm vụ chuyên môn, mà còn là trải nghiệm tràn đầy ý nghĩa đối với toàn bộ ekip. 
 
-Ngắm nhìn phòng ngủ hoàn thiện chỉn chu, từng tấm nhựa Ecoplast phẳng mịn, từng đường viền dán cạnh nét căng và hệ thống đèn hắt sáng lung linh, chúng tôi càng thêm trân trọng hành trình lao động miệt mài của mình. Niềm vui và sự hài lòng của gia chủ khi tiếp nhận gian phòng ngủ mới tinh tươm chính là món quà Tết Độc Lập ý nghĩa nhất dành cho xưởng Nội Thất Nhựa Ecoplast Hà Nội.
+Ngắm nhìn phòng ngủ hoàn thiện chỉn chu, từng tấm nhựa Ecoplast phẳng mịn, từng đường viền dán cạnh nét căng và hệ thống đèn hắt sáng lung linh, chúng tôi càng thêm trân trọng hành trình lao động miệt mài của mình. Niềm vui và sự hài lòng của gia chủ tại ngõ 183 Phúc Tân khi tiếp nhận gian phòng ngủ mới tinh tươm chính là món quà Tết Độc Lập ý nghĩa nhất dành cho xưởng Nội Thất Nhựa Ecoplast Hà Nội.
 
-Chúc cho mọi gia đình Việt Nam luôn tràn ngập hạnh phúc, an yên trong những tổ ấm trọn vẹn và hiện đại!
+Chúc cho gia đình Anh Noo Phước Thịnh cùng toàn thể các gia đình Việt Nam luôn tràn ngập hạnh phúc, an yên trong những tổ ấm trọn vẹn và hiện đại!
