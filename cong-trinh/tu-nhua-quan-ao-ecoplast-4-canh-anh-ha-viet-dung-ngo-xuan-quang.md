@@ -2,7 +2,7 @@
 
 ## 1. Hành Trình Tiếp Nối & Câu Chuyện An Cư Của Gia Đình Căn Nhà Mới
 
-Tiếp nối công trình hoàn thiện [bàn học 1m2 Ecoplast EC-BHS04 cho bé Nam tại Hoàng Như Tiếp](https://ecoplasthn.github.io/ktsnguyenthanh/cong-trinh/ban-hoc-nhua-don-cho-be-1m2-ecoplast-ec-bhs04-chi-ngo-dang-thu-giang-bo-de) đúng đêm muộn trước ngày khai giảng, chuyến xe thi công của xưởng Nội Thất Nhựa Ecoplast Hà Nội lại tiếp tục lăn bánh hướng về ngõ 64 Ngô Xuân Quảng, thị trấn Trâu Quỳ (xã Gia Lâm, Hà Nội).
+Tiếp nối công trình hoàn thiện [bàn học 1m2 Ecoplast EC-BHS04 cho bé Nam tại Hoàng Như Tiếp](https://ecoplasthn.github.io/ktsnguyenthanh/cong-trinh/ban-hoc-nhua-don-cho-be-1m2-ecoplast-ec-bhs04-chi-ngo-dang-thu-giang-bo-de) đúng đêm muộn trước ngày khai giảng, sáng 6/9 chuyến xe thi công của xưởng Nội Thất Nhựa Ecoplast Hà Nội lại tiếp tục lăn bánh hướng về ngõ 64 Ngô Xuân Quảng, thị trấn Trâu Quỳ (xã Gia Lâm, Hà Nội).
 
 Tại đây, chúng tôi có dịp lắng nghe những tâm sự rất đỗi chân thành từ gia chủ – **Anh Hà Việt Dũng**. Anh Dũng chia sẻ, vợ chồng anh vừa quyết định bán căn nhà gắn bó nhiều năm ở Phú Thọ để chuyển hẳn cả gia đình xuống Hà Nội an cư. Động lực lớn nhất cho bước ngoặt này chính là việc cậu con trai út vừa nhận tin vui trúng tuyển vào Học viện Nông nghiệp Việt Nam, trong khi cô con gái lớn của anh hiện cũng đang là sinh viên năm 3 tại đây. 
 
