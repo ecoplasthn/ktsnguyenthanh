@@ -1,4 +1,22 @@
 # Nhật Ký Thi Công Sáng 10/9: Lắp Đặt Tủ Bếp Nhựa Ecoplast Chữ L Cao Cấp EC-TBNL20 Cho Chị Lê Cát Trọng Lý (Lâm Du, Bồ Đề)
+<script async defer onload="redcircleIframe();" src="https://api.podcache.net/embedded-player/sh/6c97ba2d-ab91-45b6-a42e-5b62b8ddc1e0/ep/be89e3f1-951e-4018-8d38-172399c6160b"></script>
+    <div class="redcirclePlayer-be89e3f1-951e-4018-8d38-172399c6160b"></div>
+    <style>
+    .redcircle-link:link {
+        color: #ea404d;
+        text-decoration: none;
+    }
+    .redcircle-link:hover {
+        color: #ea404d;
+    }
+    .redcircle-link:active {
+        color: #ea404d;
+    }
+    .redcircle-link:visited {
+        color: #ea404d;
+    }
+</style>
+<p style="margin-top:3px;margin-left:11px;font-family: sans-serif;font-size: 10px; color: gray;">Powered by <a class="redcircle-link" href="https://redcircle.com?utm_source=rc_embedded_player&utm_medium=web&utm_campaign=embedded_v1">RedCircle</a></p>
 
 ## 1. Bầu Trời Bồ Đề Sáng 10/9 & Đợt Gió Mùa Đầu Mùa Tới Tác
 
