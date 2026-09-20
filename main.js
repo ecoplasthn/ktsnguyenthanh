@@ -21,7 +21,7 @@ function loadHeader() {
     <header style="background-color: #1a1a1a; padding-top: 20px; border-bottom: 1px solid #333; text-align: center; position: relative;">
       <div class="brand-banner" style="display: inline-block; margin-bottom: 10px;">
         <a href="/">
-          <img src="https://raw.githubusercontent.com/ecoplasthn/ktsnguyenthanh-blog/refs/heads/main/KTS%20Nguy%E1%BB%85n%20thanh.webp" alt="KTS Nguyễn Thanh" class="site-logo" style="width: 120px; height: auto; display: block; margin: 0 auto 10px auto; border-radius: 50%; border: 2px solid #f37021;" />
+          <img src="https://raw.githubusercontent.com/ecoplasthn/ktsnguyenthanh/refs/heads/main/KTS%20Nguy%E1%BB%85n%20thanh.webp" alt="KTS Nguyễn Thanh" class="site-logo" style="width: 120px; height: auto; display: block; margin: 0 auto 10px auto; border-radius: 50%; border: 2px solid #f37021;" />
         </a>
       </div>
 
@@ -86,7 +86,7 @@ function loadAuthorBox() {
 
   authorContainer.innerHTML = `
     <div style="background: #1a1a1a; padding: 20px; border-radius: 8px; margin-top: 40px; border-left: 4px solid #008744; display: flex; gap: 15px; align-items: center; flex-wrap: wrap;">
-      <img src="https://raw.githubusercontent.com/ecoplasthn/ktsnguyenthanh-blog/refs/heads/main/KTS%20Nguy%E1%BB%85n%20thanh.webp" alt="KTS Nguyễn Thanh" style="width: 80px; height: 80px; border-radius: 50%; object-fit: cover; border: 2px solid #f37021;" />
+      <img src="https://raw.githubusercontent.com/ecoplasthn/ktsnguyenthanh/refs/heads/main/KTS%20Nguy%E1%BB%85n%20thanh.webp" alt="KTS Nguyễn Thanh" style="width: 80px; height: 80px; border-radius: 50%; object-fit: cover; border: 2px solid #f37021;" />
       <div style="flex: 1; min-width: 250px;">
         <h4 style="color: #fff; margin-bottom: 5px; font-size: 16px;">TÁC GIẢ: KTS NGUYỄN THANH</h4>
         <p style="font-size: 13px; color: #ccc; margin-bottom: 0;">Kiến trúc sư trưởng tại Nội Thất Nhựa Ecoplast Hà Nội. Chuyên tư vấn, thiết kế và thi công giải pháp nội thất nhựa cao cấp chống ẩm mốc, mối mọt cho không gian sống hiện đại.</p>
